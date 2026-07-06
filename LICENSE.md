@@ -1,4 +1,4 @@
-# 
+# Instantané Revo Uninstaller scripts pour Mac OS | Meilleur Revo Uninstaller scripts pour PC Windows. Avec système de plugins et mise à jour des pilotes — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
